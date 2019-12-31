@@ -1,0 +1,2 @@
+# FarzadXm
+alone God
